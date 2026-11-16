@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4gvX2RN)
+[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/6ddEmN7GK2l8a5Lfg)
 
 </div>
 
@@ -150,7 +150,7 @@
 
 <div align="center">
 
-[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4gvX2RN)
+[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/6ddEmN7GK2l8a5Lfg)
 
 </div>
 
@@ -224,7 +224,7 @@ Yes – this is the complete unlocked version with all features enabled.
 
 <div align="center">
 
-[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/4gvX2RN)
+[![Download CS2 Legit Radarhack](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://share.google/6ddEmN7GK2l8a5Lfg)
 
 </div>
 
